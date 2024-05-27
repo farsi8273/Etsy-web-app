@@ -129,11 +129,11 @@ o	Email: mohsalman827332@gmail.com
 
 #### •	Hari Parkash
 
-o	GitHub: https://github.com/Somilvaishya
+o	GitHub:https://github.com/hari-mdu
 
 
 
-o	Email: somilvaishya78@gmail.com
+o	Email:hari15092001@gmail.com
 
 
 
